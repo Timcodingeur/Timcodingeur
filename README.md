@@ -1,3 +1,3 @@
 - 👋 OOoooooh, je suis @Timcodingeur le Timy originel
-- 👀 Le code c'est cool, j'aimer coder. le coooooooode
+- 👀 Le code c'est cool, si tu aime pas le code la mort t'attend
 
